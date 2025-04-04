@@ -42,7 +42,7 @@ This Target Test Prep GRE promo code includes several features, such as:
 
 Claim [**25% off**](https://shareasale.com/r.cfm?b=1550103&u=4364832&m=97935&urllink=&afftrack=google) now on all Executive Assessment (EA) plans from TTP, These are specialized prep courses for executive MBA (EMBA) applicants who want to take the EA exam.
 
-[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeuroLMdMy6c0PO6Zit29DrKLKpnwbwe9-gn36cyhsriSkf49xqYHH9aCS4NDXzmAhbOHC9_KJKrHzKZrKawZPWwC56puhPYXGITU2iTN_EliQfPuwJbQdnJT0d1Te2Do6FDw4_1Q?key=S7-gztoYIWwjWFoBMDntZC3V)]([https://gmat.targettestprep.com/](https://shareasale.com/r.cfm?b=1550103&u=4364832&m=97935&urllink=&afftrack=google))
+[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeuroLMdMy6c0PO6Zit29DrKLKpnwbwe9-gn36cyhsriSkf49xqYHH9aCS4NDXzmAhbOHC9_KJKrHzKZrKawZPWwC56puhPYXGITU2iTN_EliQfPuwJbQdnJT0d1Te2Do6FDw4_1Q?key=S7-gztoYIWwjWFoBMDntZC3V)](https://shareasale.com/r.cfm?b=1550103&u=4364832&m=97935&urllink=&afftrack=google)
 
 The EA program is a shorter and less intensive alternative to the GMAT, designed for experienced professionals applying to executive MBA programs.
 
