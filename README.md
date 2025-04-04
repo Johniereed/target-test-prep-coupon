@@ -55,7 +55,7 @@ This target test prep discount code includes:
 
 ## Target Test Prep Promo Code | Get 35% Off Site-Wide
 
-Now, get [**35% off**]([https://gmat.targettestprep.com/](https://shareasale.com/r.cfm?b=1550103&u=4364832&m=97935&urllink=&afftrack=google)) on everything with this exclusive Target Test Prep Promo code, and save up to $350 on your favorite courses on TTP.
+Now, get [**35% off**]((https://shareasale.com/r.cfm?b=1550103&u=4364832&m=97935&urllink=&afftrack=google) on everything with this exclusive Target Test Prep Promo code, and save up to $350 on your favorite courses on TTP.
 
 This is a limited-time offer. Click the button below to claim this TTP promotional offer now before it’s gone.
 
